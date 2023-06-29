@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fcacim20
 - 👀 I’m interested in software since ı was little...
-- 🌱 I’m currently learning ..ENGLISH and SOFTWARE.ACTUALLY I KNOW software ONLY I learn more on my software knowledge.
+- 🌱 I’m currently learning ..ENGLISH.I AM TRYING TO ADD MORE TO MY SOFTWARE KNOWLEDGE NOW.
 - 💞️ I’m looking to collaborate on SOFTWARE DİSNEY OR DREAM WORKS.
 - 📫 How to reach me fcacim20@gmail.com OR TELEPHONE NUMBER= +90 539 580 3865.
 
