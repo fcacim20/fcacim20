@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fcacim20
+- 👋 Hi, I’m @fcacim20.I am from kayseri
 - 👀 I’m interested in software since ı was little...
 - 🌱 I’m currently learning ..ENGLISH.I AM TRYING TO ADD MORE INFORMATION TO MY SOFTWARE KNOWLEDGE.
 - 💞️ I’m looking to collaborate on WORKING ON SOFTWARE BY DISNEY OR DREAM WORKS
